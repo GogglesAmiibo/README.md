@@ -1,2 +1,3 @@
 # README.md
-I miss my ex
+skibidi toielt!!!!1 
+howdo I sotp speaking brainrot help me
